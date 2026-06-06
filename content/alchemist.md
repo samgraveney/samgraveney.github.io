@@ -1,0 +1,109 @@
+Title: Alchemist
+Slug: alchemist
+Date: 2026-01-01
+Category: short-stories
+Summary: short-stories
+
+**ALCHEMIST**
+
+Silverside Ray was described by those who did not know him very well as
+a \'proper London geezer\'. No one knew Silverside Ray very well.
+Silverside Ray owned a gym and a butcher's shop, adjoining each other
+and next to a train station which brought in City boys from Dalston and
+Hackney and further.
+
+Had he any hair, it would have been silver. Silverside Ray was seventy.
+But he was broad-shouldered and thick-forearmed from carrying carcasses
+and shanks and sides of rib, and from lifting iron barbells in the gym.
+He had done both of these things for sixty years, hated them both, and
+wished for more.
+
+The people who called Silverside Ray a 'proper London geezer' were
+excited by him because they felt their lives lacked authenticity, for
+they themselves were neither proper nor London nor geezers. They were
+City boys of the new school, twenty-five and thirty-five and forty-five
+year old boys from the Home Counties or Scotland who went to non-London
+universities and got degrees and then went to the City because that was
+how you made the money. They were men in tight, expensive, bad suits
+which wore thread-bare at the thighs, and for whom novelty and parody
+was the closest they got to authenticity: moustaches like First World
+War officers, which they wore as jokes. Shirts by Turnbull and Asser
+because James Bond wore them, and Omegas and Rolexes for the same
+reason, and which they ignored because they spent all day looking at
+screens which displayed the time precisely, synced to the atomic clock
+in Nevada Labs, because a fraction of a second's delay in trade volumes
+could cost a fortune. Their worlds felt unreal, so they wished
+Silverside Ray into reality.
+
+ 
+
+They needed protein, to bulk, to become real and manifest like Ray, and
+they were constantly calculating grammes of protein per kilogramme of
+body. They could afford any fad powder or herb or potion. But what they
+really loved was what Silverside Ray sold them, which, unknown to them,
+was any part of the cow which Londoners did not eat. It was a good deal
+for Ray: he got ungutted carcasses cheap, only paying the abattoir for
+the flaying. He told the abattoir he pickled guts in formaldehyde for
+schools.
+
+As he sold flank steak and rib out the front of his shop, he had
+cauldrons boiling hoof. He told the boys at the gym that Cossacks drank
+the jelly when they fought Napoleon, and he sold it in corked glass milk
+bottles, for authenticity. He cut oesophagus and trachea finely and
+dehydrated them in his ovens and sold them as 'protein chips'.
+Contemptuous of the boys' pointless maleness he peeled uterus, cervix,
+ovary apart. Salted and fried, he said his dad had called it 'German
+jerky' because he had eaten it at Sword Beach in '44. Bullock penises
+were easy to sell; when dogs ate them they were called pizzles. But
+dried and seasoned and chewy and sold as 'shin slices', the boys said it
+was better than chorizo.
+
+Silverside Ray was no dinosaur: he had a smartphone, and followed TikTok
+fitness trends. He talked about macros, lying through his teeth about
+magnesium and potassium. He understood bulking and shredding. He faked
+sympathy with the scrawny, callow youths who knew they spent too long at
+their computers, and when he gave them glass jars with gingham lids
+rattling with dried cow brain, resembling coral growths, they looked at
+him like an uncle. He said it was a type of tripe, and the boys, missing
+home, thought of the home-cooked meals they had turned their noses up
+at, and they ate brains.
+
+Silverside Ray was an alchemist. He took offal and transformed it to
+gold. The boys took gold and turned it to shit. The more they bought,
+the more he detested them. The richer he got, the more reckless.
+
+Joey had never wanted to work in the City. He had wanted to be a doctor.
+He missed his grades, but was a bright boy. He got an internship with
+one of the banks instead. His boss, Marwood, told him about a gym. It
+was authentic, he was told. There were geezers there, he was told. There
+were lorry tires to flip, and bare concrete. When the trains passed, the
+weights on the rack rattled. It was proper. Joey wanted this
+authenticity: he had wanted to be in *Medecins San Frontieres*, he told
+himself, now this was no longer a possibility.
+
+Better people than Joey were fooled by Silverside Ray. On the first of
+the month Ray sold prairie oysters: why would a man cheerfully and
+overtly selling bull testicles lie about the German jerky? So when Joey
+warned Marwood that he was eating bovine uterus, that he could tell by
+the distinctive cilia, Marwood got angry, and refused to believe him.
+Marwood told Ray and they laughed at the boy Joey. When Marwood let slip
+Joey had wanted to be a doctor, Silverside Ray got sly. He asked Marwood
+to bring the boy again. They'd have a man-to-man in his office. Marwood
+thought Silverside Ray might be a good influence, for he was a proper
+London geezer.
+
+Joey was sly too. He came at Marwood's suggestion, but without him. He
+apologised. He joked he'd failed biology. Ray said he had no
+qualifications whatsoever, and they laughed. Joey paid for a jar of
+brains with cash. He said he was bulking. He planned to take the jar to
+the Food Standards Agency. Ray unscrewed the lid, and took a brittle
+brown puck from the jar. He offered it Eucharist-like and Joey ate it.
+Ray was impressed, and considered, briefly, letting the boy live.
+
+It was convenient, the butcher's adjoining the gym. It was convenient,
+having the gambrels, to hang the body from, and the sharp knives. It was
+convenient, access to a lost property box with unclaimed, oversized
+hoodies to wear to the convenient train station at which to scan Joey's
+card. Wallet and phone in the Thames, cash to a cabbie home, final trail
+confused. But most convenient: Silverside Ray, alchemist, would turn
+Joey into gold when the gym opened and the hungry boys came.
